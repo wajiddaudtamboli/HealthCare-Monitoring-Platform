@@ -155,5 +155,3 @@ Thank you for your interest in the HealthCare Monitoring Platform! Together, let
 ![WhatsApp Image 2024-10-20 at 14 47 57_d4bf745c](https://github.com/user-attachments/assets/4215b77c-493b-4833-92d9-7671e9848631)
 
 ![WhatsApp Image 2024-10-20 at 14 47 58_a659cead](https://github.com/user-attachments/assets/93e24875-53a6-4586-b12c-1b5dc012149e)\
-
-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
